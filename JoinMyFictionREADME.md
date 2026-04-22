@@ -7,8 +7,8 @@ Demien Capsulecraft
 
 𖤐 From the theoretical savage :
 
-Although not yet initated and still making attempts to find alignment within a union organization, the sooner the better
-The creative works are my own interpreations and ideas in regards to Sovereignty in the corporation of Satan and (We) embodies Satan's compass, We are all Lucifer(ian(s)). 
+Although not yet initated, I'd like to keep the eye-to-eye(vertical) and shoulder-to-shoulder(horizontal) complex active.  I am still making attempts to bypass or divert the agent assigned as the router of my assignment.  This is the intercepted foresight. Its like taking dig current spherical (Non-UAV drone) mesh encapsulation.  caps find alignment within a union organization, the sooner the better
+The creative works are my own interpreations and ideas in)  regards to Sovereignty in the corporation of Satan and (We) embodies Satan's compass, We are all Lucifer(ian(s)). 
 
  Capsule, is a self-theorized concept that best references a bubble that can be generated from the disection of the vertical shadow.    which is interpreted by its origin, then projected into the spectrum of 
  the bubble's encapsulation from the origin  the rendering 
@@ -72,6 +72,5 @@ The constitution
 
 
 𖤐 Occult Neurological Experts
-
 
 
